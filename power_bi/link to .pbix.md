@@ -1,0 +1,1 @@
+https://studentkhai-my.sharepoint.com/:u:/g/personal/d_v_bogdanov_student_khai_edu/IQBOg6SytxU4R4603XfSne45AYXeg0mgB1n7G8o4aFukDEw?e=o4GUN1
